@@ -1,4 +1,4 @@
-# 
+# Código abierto Sejda PDF extensiones para Mac OS | Avanzado Sejda PDF extensiones para PC Windows. Con integración con contabilidad y verificación de errores — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
